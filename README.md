@@ -1,4 +1,4 @@
-# Clique [aqui](https://biacoelho.github.io/instagram-pagina-inicial) para ver :fire:
+# Clique [aqui](https://beatrizdalto.github.io/instagram-pagina-inicial) para ver :fire:
 
 
 **[Versão web]**
